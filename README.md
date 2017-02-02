@@ -5,10 +5,10 @@ Persoanl
 Developer
 Last one is lifetime
 
-Let's come to our topic "elegant themes coupon" do they offer coupon? if you search on google using elegant themes you will find a lot of affiliate coupon site trying to promote their themes using fake coupon.trust me,they never offer coupon code.Actually,they are looking for sale :( they do n't want to satify elegant themes lover?
+Let's come to our topic " <a href="https://www.bloggingstart.com/elegant-themes-coupon-code/">elegant themes coupon</a>" do they offer coupon? if you search on google using elegant themes you will find a lot of affiliate coupon site trying to promote their themes using fake coupon.trust me,they never offer coupon code.Actually,they are looking for sale :( they do n't want to satify elegant themes lover?
 
 So,where to find elegant themes offer?
-don't worry my friend,here is my trusted source for <a href="https://www.bloggingstart.com/elegant-themes-coupon-code/">elegant themes coupon</a>  & save up to $25 today
+don't worry my friend,here is my trusted source for  & save up to $25 today
 
 
 
