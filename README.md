@@ -1,4 +1,4 @@
-Hello guys,Today I would love to share with you <a href="https://www.bloggingstart.com/elegant-themes-coupon-code/">elegant themes coupon code offer</a></p> :) today you will get most popular wordpress themes comapny exclusive deal.do you know which wordpress company doing great? yeah,you are right :) it's called elegant themes.they offer 87 wordpress themes for their member.they are trying to solve their customer needs.if you want to start your wordpress blog then elegant themes will be great choice.
+Hello guys,Today I would love to share with you <a href="https://www.bloggingstart.com/elegant-themes-coupon-code/">elegant themes coupon code offer</a> :) today you will get most popular wordpress themes comapny exclusive deal.do you know which wordpress company doing great? yeah,you are right :) it's called elegant themes.they offer 87 wordpress themes for their member.they are trying to solve their customer needs.if you want to start your wordpress blog then elegant themes will be great choice.
 
 They have 3 membership plan 
 Persoanl 
